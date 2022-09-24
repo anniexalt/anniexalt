@@ -1,4 +1,4 @@
-### Hi 👋 I'm Annie, Welcome to my portfolio!
+### Hi 👋 I'm Annie, Welcome to my Portfolio!
 
 #### About Me 
 - Self taught Data Analyst 
